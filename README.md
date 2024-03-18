@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Mods for Project zomboid
 - 📫 How to reach me Please dont lmao
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: ONE PAAAAAAAAAAAAAAAAAAAAAUNCH!!!!!!!!!!!!!!!!!!
+- ⚡ Fun fact: Utter weeb 
 
 <!---
 Random1246/Random1246 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
